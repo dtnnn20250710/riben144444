@@ -20,4 +20,4 @@
 
 支持夜间模式和隐私浏览，看片无痕更安心。立即点击任意入口，体验属于你的日本AV盛宴！
 
-<span style="display:none;">[Canonical link]  (  ）</span>
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben144444 ）</span>
